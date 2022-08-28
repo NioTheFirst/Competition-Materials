@@ -12,6 +12,7 @@ If there are any questions, or if you have trouble understanding anything, my sc
 
 ## Contests:
 Septober (9/7 - 10/28)
+
 TBA
 
 ## How the competition will work:
