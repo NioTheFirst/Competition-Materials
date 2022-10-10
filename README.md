@@ -6,7 +6,7 @@ Hello! My name is Brian Zhang, and I will be the sponsor and organizer for this 
 
 Welcome to the first ever HHS auditing competition!
 
-If you are not from William Henry Harrison High School, I'm sorry, this contest is not for you.
+If you are not from William Henry Harrison High School, this contest is not for you.
 
 If there are any questions, or if you have trouble understanding anything, my school email is: bzhan76@tscstudents.net
 
