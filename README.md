@@ -11,7 +11,7 @@ If you are not from William Henry Harrison High School, I'm sorry, this contest 
 If there are any questions, or if you have trouble understanding anything, my school email is: bzhan76@tscstudents.net
 
 ## Contests:
-Septober (10/10 - 10/28)
+October (10/10 - 10/28)
 
 TBA
 
