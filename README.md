@@ -39,6 +39,7 @@ Numbers two through 5 (2-5) from each category will each be awarded $50 on 11/3 
 - Only your first submission will be counted
 - You may use the slides provided and/or Google.
 - Rewards will be in cash or Venmo, depending on preferance.
+- Check this site often! Any updates will be posted here.
 
 
 
