@@ -31,9 +31,9 @@ A virtual test will be linked starting 12:00 A.M. on 10/29. You will have the en
 
 The top five(5) scorers that score at least a 90% will be chosen from the Boy, Girl, and Non-binary categories.
 
-The number one(1) submission from each category will be each be awarded $100 on 11/2 (November 2nd)
+The number one(1) submission from each category will be each be awarded $100 on 11/3 (November 3rd)
 
-Numbers two through 5 (2-5) from each category will each be awarded $50 on 11/2 (November 2nd).
+Numbers two through 5 (2-5) from each category will each be awarded $50 on 11/3 (November 3rd).
 
 ### Rules:
 - Only your first submission will be counted
