@@ -14,7 +14,7 @@ If there are any questions, or if you have trouble understanding anything, my sc
 October (10/10 - 10/28)
 
 
-Sorry for the delay! The contest is LIVE now until Monday.
+#Sorry for the delay! The contest is LIVE now until Monday.
 
 Please sent submissions to my email
 
