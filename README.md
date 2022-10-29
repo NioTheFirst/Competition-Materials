@@ -13,6 +13,11 @@ If there are any questions, or if you have trouble understanding anything, my sc
 ## Contests:
 October (10/10 - 10/28)
 
+
+Sorry for the delay! The contest is LIVE now until Monday.
+
+Please sent submissions to my email
+
 TBA
 
 ## How the competition will work:
@@ -27,7 +32,7 @@ They will go over:
 - What is a Smart Contract?
 - Sample exploits
 
-A virtual test will be linked starting 12:00 A.M. on 10/29. You will have the entire weekend to turn in this test. You will be asked to include your gender. Please be honest, as I reserve the right to distribute the rewards.
+A virtual test will be linked starting 12:00 A.M. on 10/29. You will have the entire weekend to turn in this test. You will be asked to include your gender. Please be honest, as I reserve the right to distribute the rewar
 
 The top five(5) scorers that score at least a 90% will be chosen from Boy, Girl, and Non-binary categories.
 
